@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on AI AUTOMATION
 - 📫 How to reach me MY MAIL ID vedantsshinde2006@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: YOU CAN CALL ME DADDY 
+- ⚡ Fun fact: YOU CAN CALL ME BUDDY
 
 <!---
 rizzlerop/rizzlerop is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
